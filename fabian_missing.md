@@ -1,0 +1,1 @@
+Hi everyone, I have issues with my phone, but I ma reachable on email or through git commits untill Monday
